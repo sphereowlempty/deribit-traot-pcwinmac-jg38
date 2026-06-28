@@ -1,4 +1,4 @@
-# 
+# Élite deribit trading bot scripts for Mac OS | Ultime deribit trading bot scripts for PC Windows. Featuring analyse de la dynamique and stratégie de retour à la moyenne — optimized for maximum performance.
 
 
 
